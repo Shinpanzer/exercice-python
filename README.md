@@ -1,0 +1,7 @@
+## EXERCICE LUNDI BILAL 26 OCT 2026
+
+-EXO 1 a 10
+
+
+
+
